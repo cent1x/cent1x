@@ -6,6 +6,6 @@
 
 💞️ I’m eager to collaborate on creating C# code for plugins or any exciting projects related to my interests!
 
-📫 You can reach out to me on Discord via this invite link: Discord Invite Link
+📫 You can reach out to me on Discord via this invite link: www.fette-beute.info -> Scrol to the very bottom -> Click on Discord :D
 
 Looking forward to connecting with like-minded individuals and exploring new opportunities together! Oh, and don't forget, you can also find me at fette-beute.info, where you'll find our Discord link right on the page. Let's build something awesome! 🚀
